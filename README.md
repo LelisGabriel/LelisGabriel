@@ -1,8 +1,8 @@
 ## Opa! eu sou Lelis Gabriel,atualmente Estudando linguagens de programação e tecnologias
 
-- 🎓 Atualmente estudando HTML e CSS .
+- 🎓 Atualmente me declarei gay .
 
-- 📚 Fazendo cursos da udemy
+- 📚 Como fazer dinheiro como garoto de luxo 
 
 - 🚀 Curiosidades sobre mim : adoro ouvir musica e aprender linguas.
 
